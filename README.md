@@ -8,3 +8,4 @@ pic3
 pic4
 ![0713be76-9483-4d0b-b9b4-e87d577c1582](https://github.com/user-attachments/assets/9f256c28-9e5d-443d-ae5a-c68610f6883a)
 ![e8cf973f-82a1-4804-9591-957af4c0653a](https://github.com/user-attachments/assets/0d44fb39-0539-4ed2-a547-bb4c31748740)
+<img width="1024" height="1024" alt="faraz com" src="https://github.com/user-attachments/assets/c3e3d0fc-36cc-4449-befc-24c2e2c87dbc" />
